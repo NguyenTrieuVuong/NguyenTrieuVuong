@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 -->
 - 🎧 I like listening to all genre of music
-- 🎤 I'm interested in singing every type of songs (except Bolero, Revolutionary songs)
+- 🎤 I'm interested in singing/rapping every type of songs (except Bolero, Revolutionary songs)
 - ⚡ Fun fact: Keen on watching anime, movies
